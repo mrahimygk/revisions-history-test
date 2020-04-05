@@ -1,2 +1,2 @@
 # revisions-history-test
-This is mojtaba, wit som esmal typos...
+This is mojtaba, with his small typos corrected.
